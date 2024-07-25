@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://cn.bing.com/th?id=OHR.SmokyMountainTrail_EN-US9730767535_UHD.jpg) 
+
 2024-07-24 | [Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://cn.bing.com/th?id=OHR.MethoniCastle_EN-US9447007951_UHD.jpg) 
 
 2024-07-23 | [Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.HammockCamping_EN-US9298465355_UHD.jpg) 
