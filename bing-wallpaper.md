@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-18 | [Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-US9511078525_UHD.jpg) 
+
 2025-03-17 | [Baby giant panda in the snow, China (© Cheryl Schneider/Alamy)](https://cn.bing.com/th?id=OHR.PandaSnow_EN-US9432739016_UHD.jpg) 
 
 2025-03-15 | [Dolmen of Sorginetxe, Basque Country, Álava, Spain (© David Herraez Calzada/plainpicture)](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-US9089569057_UHD.jpg) 
