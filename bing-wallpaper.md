@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2026-10-28 | [A grove of pond cypress trees with fall foliage, Georgia, USA (© Chris Moore/Getty Images)](https://cn.bing.com/th?id=OHR.PondCypress_EN-US0123444779_UHD.jpg) 
+
 2026-10-27 | [Gray-headed flying fox, Victoria, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.HangingBat_EN-US7714746725_UHD.jpg) 
 
 2026-10-25 | [Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg) 
